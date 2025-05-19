@@ -2,7 +2,7 @@
 
 🎯 Master’s Student in Embedded Electrical Engineering  
 🛠️ Embedded Developer | DevOps Enthusiast | MBD Architect | Defect Analyst
-📫 Email: yourmail@example.com  
+📫 Email: aristondecor003@gmail.com  
 🔗 LinkedIn: [aristide-mendiglembaye](https://linkedin.com/in/aristide-mendiglembaye-1503b7242)
 
 ---
